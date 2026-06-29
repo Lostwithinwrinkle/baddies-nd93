@@ -1,4 +1,4 @@
-
+Experience baddies like never before with instant baddies Script, the #1 Script. Includes auto-farm and custom skins for unbeatable performance.
 
 
 
